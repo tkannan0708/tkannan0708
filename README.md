@@ -1,4 +1,4 @@
-## Hi there 👋
+## Karthik G S loves Pavithra for which Thamarai Kannan is the mama.
 
 <!--
 **tkannan0708/tkannan0708** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
